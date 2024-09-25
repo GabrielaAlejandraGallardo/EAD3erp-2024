@@ -7,3 +7,6 @@ Actividad 1:
 
 Autoevaluación Diccionarios:
 https://forms.gle/hZVV1nRy9Ld6xAqr6
+
+
+Evaluación Diccionarios: https://forms.gle/UtwA3gZ1rK8kR3Ny7
