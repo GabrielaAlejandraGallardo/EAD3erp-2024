@@ -13,3 +13,5 @@ Evaluación Diccionarios: https://forms.gle/UtwA3gZ1rK8kR3Ny7
 
 Jornada Violencia de Género
 https://colab.research.google.com/drive/1tOse-JN32prmB5WBidulyju6TeKncxyR?usp=sharing
+
+Evaluación 20 de Noviembre_ https://forms.gle/87Vf2iYBAMmhTxKv8
