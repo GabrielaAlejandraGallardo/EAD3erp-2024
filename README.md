@@ -15,3 +15,6 @@ Jornada Violencia de Género
 https://colab.research.google.com/drive/1tOse-JN32prmB5WBidulyju6TeKncxyR?usp=sharing
 
 Evaluación 20 de Noviembre_ https://forms.gle/87Vf2iYBAMmhTxKv8
+
+
+Recuperatorio:  https://forms.gle/xrzaheaEHeiuzDtA6
